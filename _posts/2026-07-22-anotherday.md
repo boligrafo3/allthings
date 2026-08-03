@@ -1,3 +1,8 @@
+---
+layout: post
+title:  "Another Day"
+---
+
 fighting the endless end again. usually rainy days are sources of power for me but this time… i feel sluggish even if i know i am healthier than a couple of months ago ago. i can’t decide if i want to journal on paper or digitally and frankly ive decided it doesn’t really matter at all. this shit is for me anyway right? there won’t be anyone reading this someday, no archivist is coming to commemorate my achievements ha. 
 
 i got a new keyboard for this machine because my old one was giving me shit and so far i kind of hate it. the spacebar is right next to a hinge for it to fold… bad design. ill work around it i guess, or adapt. 
